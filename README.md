@@ -2,6 +2,9 @@
 
 Looking for amazing deals on your next getaway? Whether you’re planning a weekend trip or a longer vacation, you’ve come to the right place! With [Stayfi promo codes](https://stayfi.com/?ref=salman), you can save big on your staycation and enjoy all the perks of booking with Stayfi.
 
+[![423110194-20776781-fad3-4af3-9d5e-123c30628bd8](https://github.com/user-attachments/assets/9517fe83-8ac0-4b83-a571-d0131c570185)](https://stayfi.com/?ref=salman)
+
+
 ## Best Stayfi Promo Codes
 
 Stayfi is known for offering fantastic discounts to its customers, but with the right promo code, you can get even better deals. Below are some of the top promo codes currently available:
@@ -48,6 +51,8 @@ Stayfi is known for offering fantastic discounts to its customers, but with the 
 
 These codes can make your trip even sweeter—whether you're looking to save on your first stay or enjoy a hefty discount on premium locations, Stayfi has you covered.
 
+[![423110194-20776781-fad3-4af3-9d5e-123c30628bd8](https://github.com/user-attachments/assets/9517fe83-8ac0-4b83-a571-d0131c570185)](https://stayfi.com/?ref=salman)
+
 ## How to Redeem Stayfi Promo Codes?
 
 Redeeming your Stayfi promo code is super simple. Just follow these easy steps:
@@ -67,6 +72,8 @@ Once you've selected your accommodation and are ready to book, head to the check
 ### Step 4: Confirm the Discount and Complete Your Purchase
 
 After entering the code, you’ll see your discount applied instantly. Confirm the final price and complete your purchase—your savings are just a few clicks away!
+
+[![423110194-20776781-fad3-4af3-9d5e-123c30628bd8](https://github.com/user-attachments/assets/9517fe83-8ac0-4b83-a571-d0131c570185)](https://stayfi.com/?ref=salman)
 
 ## Stayfi Pricing Information
 
